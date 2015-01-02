@@ -1,13 +1,14 @@
 Viking Metal Death Glögg
 ========================
 
-- 1.5L Cabernet
-- 1.5L Port
-- 5oz Brandy
 - 4oz Orange Peel
 - 52 Whole Cloves
 - 40 Cardamom Pods
 - 4oz Cinnamon Sticks
+- Cheesecloth and twine
+- 1.5L Cabernet
+- 1.5L Port
+- 5oz Brandy
 - 1lb Sugar
 
 ###Prepare the Spices
