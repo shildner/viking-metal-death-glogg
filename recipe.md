@@ -8,7 +8,7 @@ Viking Metal Death Glögg
 - Cheesecloth and twine
 - 1.5L Cabernet
 - 1.5L Port
-- 5oz Brandy
+- 5oz Bourbon
 - 1lb Sugar
 
 ###Prepare the Spices
@@ -25,7 +25,7 @@ Combine the wines in a large pot, cover and bring to a gentle boil. Turn the sto
 
 ###Make the syrup
 
-While the wine is mulling, combine the sugar and brandy in a small pot and cook on low until the sugar has dissolved.
+While the wine is mulling, combine the sugar and bourbon in a small pot and cook on low until the sugar has dissolved.
 
 ###Finish and Serve
 
